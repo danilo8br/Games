@@ -1,2 +1,2 @@
 # Games
-Alguns jogos que eu fizpor pura diversão =)
+Alguns jogos que eu fiz por pura diversão =)
