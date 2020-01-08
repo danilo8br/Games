@@ -1,2 +1,2 @@
 # Games
-Alguns jogos que eu fiz para divertir você =)
+Alguns jogos que eu fizpor pura diversão =)
